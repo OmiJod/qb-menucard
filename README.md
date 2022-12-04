@@ -5,7 +5,7 @@ Server Owners and The Staff have Hard Time With Business Menu Cards For UwU Bean
 
 # preview- https://youtu.be/8TRsCOBSAZw:tada
 
-# Tebex https://moon-scriptsstore.tebex.io/package/5406702 - What ever You Wanna Pay
+# Tebex https://moon-scriptsstore.tebex.io/category/free-packages - Free
 
 
 ![image](https://user-images.githubusercontent.com/69292814/205432586-6caa6193-109a-49b6-bad9-7b8d2d154e78.png)
